@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @izumiminami
+- 👀 I’m interested in anime
+- 🌱 I’m currently learning how to make an anime & avatar
+- 💞️ I’m looking to collaborate on it
